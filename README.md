@@ -1,4 +1,4 @@
-# MASTERY OF INTENTIONS SINCE 2018 TILL TODAY
+# MASTERY OF INTENTIONS SHOW TIME SINCE 2018
 
 THOUGHT OR IMAGINATION OR INTENTIONS TO CHOICES TO ACTIONS TO REVISIONS
 
@@ -13,7 +13,20 @@ THOUGHT OR IMAGINATION OR INTENTIONS TO CHOICES TO ACTIONS TO REVISIONS
 
 DIMENSIONS OF WHAT
 
-    INTENTION
-    CHOICES OF MENU (DEMUX)
-    MENU OF CHOICES (MUX)
-    SELECT THE CHOICE
+    Intention
+    Choices of menu (DEMUX)
+    Menu of choices (MUX)
+    Select the choice
+
+WHO INTERROGATE PAST WHILE I REVERSE
+ 
+     The show on stage
+     I am just sitting and watching the show
+     Setup of setup from begining 
+     I am just sitting and watching the show
+     Change the show
+     Who is interrupting, I was just watching the show
+     Change the cinema
+     Who is interrupting, I was just watching the show
+     Cinema
+     Then who is behind the curtain
