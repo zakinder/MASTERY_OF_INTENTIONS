@@ -33,6 +33,7 @@ WHO INTERROGATE PAST WHILE I REVERSE
      
 
 A Right Choice from Right to left.
+One Right Point Toward Source Of Light
 
      Select a choice from 2 choices at beginning of mankind.
      Select a choice from 2100 choices in 21st century.
