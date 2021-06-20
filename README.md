@@ -30,3 +30,22 @@ WHO INTERROGATE PAST WHILE I REVERSE
      Who is interrupting, I was just watching the show
      Cinema
      Then who is behind the curtain
+     
+
+A Right Choice from Right to left.
+
+     Select a choice from 2 choices at beginning of mankind.
+     Select a choice from 2100 choices in 21st century.
+     Then how to pick the right choice out of menu of best choices.
+     Who can validate that is the best of the best choice out of all choices.
+     Reverse Muxes until all Demuxed to single point which is respecting humans or don't eat forbidden fruit.
+     Then who created the gate of www.projecttollgate.com
+     Is that imagination of source light which even bend at black hole.
+     Number is dot or a picture of billion words where space is not the limit.
+     What converge never diverge and what diverge never converge which is what goes around also comes around on what side.
+     What Converge from right toward source of light.
+     What diverge from source of light is toward darkness.
+     Meet at source of light which connects all dots of light toward stright line.
+     Diverge path never converge
+     There is nothing called infinity.
+     There is nothing called zero before 1.
