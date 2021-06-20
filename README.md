@@ -10,3 +10,10 @@ THOUGHT OR IMAGINATION OR INTENTIONS TO CHOICES TO ACTIONS TO REVISIONS
     MPEG (I,B,P Frames) or Thought (I,B,P Frames)
     Between I and P Frame Where Exposing Truth
     Molding Per Frame Where Next Exist
+
+DIMENSIONS OF WHAT
+
+    INTENTION
+    CHOICES OF MENU (DEMUX)
+    MENU OF CHOICES (MUX)
+    SELECT THE CHOICE
