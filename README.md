@@ -50,3 +50,5 @@ One Right Point Toward Source Of Light
      Diverge path never converge
      There is nothing called infinity.
      There is nothing called zero before 1.
+     There is nothing called such zero choice.
+     Just do not eat forbidden fruit.
