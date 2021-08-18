@@ -52,3 +52,9 @@ One Right Point Toward Source Of Light
      There is nothing called zero before 1.
      There is nothing called such zero choice.
      Just do not eat forbidden fruit.
+     
+     
+     
+![Ali](https://github.com/zakinder/MASTERY_OF_INTENTIONS/blob/main/ControlledTiming.JPG "Ali")
+
+     
