@@ -53,6 +53,13 @@ One Right Point Toward Source Of Light
      There is nothing called such zero choice.
      Just do not eat forbidden fruit.
      
+WantVsNotWant  
+
+     Impose Choices Formula of Opposition Want
+     StaticImage(CapturePastViewImageFrame)-Discusting-ForceACKRejectionInFrontOfMirrorMethod
+     Intention+ChoiceSelection+Implementation = Made A Choice
+     Mux+Mux+FlipFlop = Output
+     Demux+Demux+FlipFlop = RootCause of Output 
      
      
 ![Ali](https://github.com/zakinder/MASTERY_OF_INTENTIONS/blob/main/ControlledTiming.JPG "Ali")
