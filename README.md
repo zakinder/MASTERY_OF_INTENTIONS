@@ -53,7 +53,7 @@ One Right Point Toward Source Of Light
      There is nothing called such zero choice.
      Just do not eat forbidden fruit.
      TheGeniun[ToBeIsNotToBeIsWhatUAreIsUAre] So Forces Ack EitherOn TrustOr[Got|Hack|Decision|Given|GiveUp]Access
-
+     Humans Truth: Apple[Focus|Want|Choice|Decision|DoNotThisElseVsBrainClusters|Blink|AttractionVsDistraction|Awareness|Knowing|OutSideIn[HolyBooks]|InSideOut[EachAdamIsHiddenPlannedToKillAdam[PlannedToSeperateAdamInto2Half[MaterialVsKnowingSoul1stUniversalTransectionOnAdam]]]] is logic[Order] than Space[FromHeavenToEarth] is Transient Vs SakindeToSakinderAliToSAkinderToSAToSA611982 To SA611982 1st InsideOut[UVMHolyBook[WarInSideOutAtCornerOfTheWorldTucson[1Logic0VsGatesKeys[SuperemeRateToFlatPauseTheTime[TimeStop[OnOffTimeMeet2ndTrasectionOfUniversalNothing[NothingToSomeThingSomeThingToNothingGotControlBySA611982]]]]]]] 
      
 WantVsNotWant  
 
