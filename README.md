@@ -52,6 +52,8 @@ One Right Point Toward Source Of Light
      There is nothing called zero before 1.
      There is nothing called such zero choice.
      Just do not eat forbidden fruit.
+     TheGeniun[ToBeIsNotToBeIsWhatUAreIsUAre] So Forces Ack EitherOn TrustOr[Got|Hack|Decision|Given|GiveUp]Access
+
      
 WantVsNotWant  
 
